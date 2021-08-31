@@ -1,6 +1,6 @@
-## ***Olá! Eu sou a Magali Viana***
+# ***Hi! I am Magali Viana***
 
-### *Seja bem-vindx!*
+### *Welcome!*
 
 ##
 
